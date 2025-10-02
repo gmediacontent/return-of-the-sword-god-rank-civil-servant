@@ -1,1 +1,2 @@
-# return-of-the-sword-god-rank-civil-servant
+# Return of the Sword God-Rank Civil Servant
+[Par le studio qui vous a offert { Margrave’s Bastard Son was The Emperor } ! et l’auteur qui vous a offert {The Rebirth of an 8th-Circled Wizard} ! Le Dieu de l’épée, Ahn Su-ho. Étonnamment, le plus grand épéiste de l’humanité était un chasseur fonctionnaire affilié aux Chasseurs Coréen…
